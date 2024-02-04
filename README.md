@@ -1,9 +1,5 @@
-Hi, I’m Rose/Serena
-She/Her 
-INT if your pony is in the same fandom as mine!
-Be aware i am a minor (14)
-Hyperfixated on Homestuck
 I am homeschooled so i have alot of time on my hands...
+nothing specific on my DNI ill hide you freely if something makes me uncomfortable!
 
 
 <!---
